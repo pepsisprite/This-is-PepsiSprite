@@ -23,7 +23,8 @@
 
 > 邮箱：justinbally997@gmail.com  
 > 推特：[@zzt000ccc](https://twitter.com/zzt000ccc)   
-> QQ：[1624262875](https://www.teensdream.cn/jump.html?1624262875)   
+> QQ：[1624262875](https://www.teensdream.cn/jump.html?1624262875)
+> bilibili：[百事雪碧Ps](https://space.bilibili.com/85798800)  
 > 网易云音乐：[Mr_PepsiSprite](http://music.163.com/m/user/home?id=1355391697)   
 
 ***
